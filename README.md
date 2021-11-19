@@ -1,4 +1,4 @@
-# WORK IN PROGRESS (I just made the account kek)
+# WORK IN PROGRESS
 
 - 👋 Hi, I’m @lachlanthomson
 - 👀 I’m interested in ...
